@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on interestung blockchain project
 - 🤔 I’m looking for help with ...
 - 📫 How to reach me: Twitter: [FatoluP](https://mobile.twitter.com/FatoluP)
-- Email: fatolupelumi@gmail.com
+- 📩 fatolupelumi@gmail.com
 - 😄 Pronouns: Pelumi/His/He
 - ⚡ Fun fact: Love to see half the World
 -->
